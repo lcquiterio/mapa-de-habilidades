@@ -9,6 +9,7 @@ Minhas Habilidades:
 - Trabalhar em grupo
 - Cuidar de dinheiro
 - Novas e antigas tecnologias
+- Dançar
 - Cozinhar
 - Organizar arquivos físicos, digitais e ambientes diversos
 - Decorar
